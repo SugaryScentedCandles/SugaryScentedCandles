@@ -1,16 +1,26 @@
-## Hi there 👋
+                                  Helloo my Candleheadss!!
 
-<!--
-**SugaryScentedCandles/SugaryScentedCandles** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+                              Pt's official stupid lil Waxwell 
+                                     
+                                        Sugar / Wax 
+                                    She/Her || He/Him idc
 
-Here are some ideas to get you started:
+                                   ~ Small info abt me ~
+                    - Very punctual at time during my convos *every so often*
+                   - Can get a little defensive if info idek abt from beforehand
+               is thrown at me or anyone else, IF IDK THE CONTEXT DON'T SAY IT AT US!
+             
+              ❕ - 13 or under BEWARE - ❕ I can say or do alot of unhinged or dirty shit
+               whenever im in public w/ friends; don't take whatever I do too /srs pls
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+         >//  IWC 4 new players around the spawn; I don't talk to anyone idk tht is new \\<
+             or annoying pathetic / controveral trollers, i'll either ignore or hide you 
+
+              ❗❗ EVEN IF IT'S SATIRE, I DON'T WANNA INT OR BE NEAR ANY FUCKING ❗❗
+                 \\               TROLL PONIES IN MY VICINITY                //
+                    This shit just gets brought up everyday when I'm active
+                 atleast once, I also just don't find the appeal in it at times..
+
+
+
+                 
