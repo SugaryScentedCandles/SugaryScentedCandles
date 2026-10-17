@@ -1,13 +1,13 @@
-                                  Helloo my Candleheadss!!
+                              ~🕯️🔥Helloo my Candleheadss!!🔥🕯️~
 
                               Pt's official stupid lil Waxwell 
                                      
-                                        Sugar / Wax 
-                                    She/Her || He/Him idc
+                                  //     Sugar / Wax     \\
+                                \\  She/Her || He/Him idc  //
 
                                    ~ Small info abt me ~
-                    - Very punctual at time during my convos *every so often*
-                   - Can get a little defensive if info idek abt from beforehand
+                  ☝️🤓  - Very punctual at time during my convos *every so often*
+                 🛡️🕯️  - Can get a little defensive if info idek abt from beforehand
                is thrown at me or anyone else, IF IDK THE CONTEXT DON'T SAY IT AT US!
              
               ❕ - 13 or under BEWARE - ❕ I can say or do alot of unhinged or dirty shit
